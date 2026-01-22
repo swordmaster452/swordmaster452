@@ -1,6 +1,5 @@
 ## 452 Station 👋
 ![STILL FREE](https://www.wallpaperflare.com/street-street-photography-mono-black-and-white-alone-art-wallpaper-eencz)
-[Some title 1](#some-title-1)
 
 ## MY INSTA ROOM
 https://www.instagram.com/stay_playa
