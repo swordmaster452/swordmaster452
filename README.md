@@ -1,5 +1,5 @@
 ## 452 Station 👋
-![STILL FREE](https://i.playground.ru/p/KC08ejeo0h69HmgLalv4Ug.jpeg)
+![STILL FREE](https://abrakadabra.fun/uploads/posts/2022-02/1646041034_4-abrakadabra-fun-p-shapka-dlya-saundklaud-5.jpg)
 
 ## MY INSTA ROOM
 https://www.instagram.com/stay_playa
