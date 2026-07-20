@@ -2,8 +2,8 @@
 ![STILL FREE](https://abrakadabra.fun/uploads/posts/2022-02/1646041034_4-abrakadabra-fun-p-shapka-dlya-saundklaud-5.jpg)
 
 ## MY INSTA ROOM : SOUNDCLOUD
-https://www.instagram.com/stay_playa
-https://soundcloud.com/stay_playa
+https://www.instagram.com/stay_playa $ 
+ https://soundcloud.com/stay_playa
 
 
 
